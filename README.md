@@ -1,2 +1,2 @@
 ### Hi there 👋
-🌱 I'm currently learning about fun stttttttttttuuuuuuuuuuuuuffffffffffffffffff
+💻 mashing keys in the right order call that programmer
