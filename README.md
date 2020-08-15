@@ -1,2 +1,2 @@
 ### Hi there 👋
-💻 mashing keys in the right order call that programmer
+💻 mashing keys in the right order
